@@ -1,1 +1,1 @@
-# Quote-s-site-by-Abhisek
+# Quote-s-site
